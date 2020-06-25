@@ -11,3 +11,5 @@ Aus Casablanka:
 
 > Denke Du jetzt für mich, Rick
 
+<img src="https://upload.wikimedia.org/wikipedia/commons/1/1b/Ingrid_Bergman_in_Yank%2C_the_Army_Weekly.jpg"/>
+
