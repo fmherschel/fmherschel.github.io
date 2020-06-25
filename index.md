@@ -7,3 +7,7 @@ Ingrid Bergman wurde als Tochter der aus Kiel gebürtigen Friedel Adler geboren;
 * Ideal für Casablanca
 * Vierter Punkt
 
+Aus Casablanka:
+
+> Denke Du jetzt für mich, Rick
+
